@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 HEY, I’m Dhivian Pirabaharan.👋 <br>🚀 I'm a trainee software developer looking for a opportunity to start a career in Tech!!<br>👀 I’m interested in Building PC's, Gaming and staying up-to-date with the latest technology innovations!!.<br>🌱 I’m currently learning web development.<br>⚡ Fun fact I enjoy playing Badminton and watching shows like Big Bang Theory and Modern family.<br>📫If you'd like to collaborate on a project, feel free to connect with me on LinkedIn [https://www.linkedin.com/in/dhivian-pirabaharan/].<br><br>Thank you for visiting my profile!
+👋 HEY, I’m Dhivian Pirabaharan.👋 <br>🚀 I'm a trainee software developer looking for a opportunity to start a career in Tech!!<br>👀 I’m interested in Building PC's, Gaming and staying up-to-date with the latest technology innovations!!.<br>🌱 I’m currently learning web development and always looking to expand my Tech-Stack.<br>⚡ Fun fact I enjoy playing Badminton and watching shows like The Big Bang Theory and Modern family.<br>📫If you'd like to collaborate on a project, feel free to connect with me on LinkedIn [https://www.linkedin.com/in/dhivian-pirabaharan/].<br><br>Thank you for visiting my profile!
 
 
 ## 🌐 Socials:
